@@ -57,6 +57,4 @@ After completing these labs, users will be able to:
 Khushi  Garg
 
 MBA Finance Student | AI in Finance Practitioner
-Khushi  Garg
 
-MBA Finance Student | AI in Finance Practitioner
